@@ -10,7 +10,9 @@ ben.snider24@gmail.com
 
 ### Things I love!
 Reading
+
 Running
+
 Listening to music
 
 <!--
