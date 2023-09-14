@@ -15,6 +15,8 @@ Running
 
 Listening to music
 
+Chocolate
+
 <!--
 **bensnider/bensnider** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
