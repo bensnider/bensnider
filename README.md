@@ -6,7 +6,7 @@ I am a student at the University of Texas at Austin passionate about research. I
 he/him/his
 
 ### You can reach me here!
-ben.snider24@gmail.com
+ben.snider@outlook.com
 
 ### Things I love!
 Reading
